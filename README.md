@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **rishti263@gmail.com**
 
-- ⚡ In my free time, **I love to write, listen to songs & play badminton**
+- ⚡ In my free time, **I love to write, listen to songs, read books & play badminton**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
